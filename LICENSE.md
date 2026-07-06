@@ -1,4 +1,4 @@
-# 
+# Natif TreeSize préréglages pour Mac OS | Top TreeSize préréglages pour PC Windows. Avec analyse de l'espace disque et journal des transactions — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
